@@ -1,7 +1,7 @@
 - 👋 Hi, I’m PetynNeptun
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...kdijoijgvttrfg
+- 💞️ I’m looking to collaborate on ...qjiogvrg
 - 📫 How to reach me ...reqqhtrh
 - 😄 Pronouns: kek lol 
 - ⚡ Fun fact: allo
