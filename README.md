@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...qjiogvrg
-- 📫 How to reach me ...rtrhteafce
+- 📫 How to reach me ...bgfewf
 - 😄 Pronouns: kek lol 
 - ⚡ Fun fact: allo
 PetynNeptun/PetynNeptun is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
